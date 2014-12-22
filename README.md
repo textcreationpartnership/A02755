@@ -35,9 +35,19 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The tragi-comicall history of Alexto and Angelica Containing the progresse of a zealous Candide, and
+
+1. TO THE REAders
+
+1. TO HIS RESPECted Friend ALEX: HART: Eſquire.
+IN LAVDEM HƲJƲS LIBRI Carmen Encomiſticon.COme hither Homer, wher's thy ſacred quill?Learned Minerva
+1. TO THE BLOSſome of Poetry ALEX: HART, Eſquire.
+
+1. TO HIS LEARNED FRIEND, ALEX: HART Eſquire.
+
 #####Body#####
-The tragi-comicall history of Alexto and Angelica Containing the progresse of a zealous Candide, and
+
+1. THE HISTORY OF ALEXTO AND ANGELICA, OR Loves Metaphor.
+
 **Types of content**
 
   * There are 377 **verse** lines!
